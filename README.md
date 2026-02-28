@@ -7,7 +7,7 @@ Web Developer and Cybersecurity Enthusiast
 * 🌍  I'm based in Bihar, India
 * ✉️  You can contact me at [satyamraghuvanshi220ct@gmail.com](mailto:satyamraghuvanshi220ct@gmail.com)
 * 🧠  I'm currently learning Web Development and Cybersecurity
-* 👥  I'm looking to collaborate on Website Designing, Event Management and Photography
+* 👥  I'm looking to collaborate on Website Designing, Event Management, and Photography
 * 💬  Ask me about I'm an Athlete and a Photographer
 
 <p align="left">
